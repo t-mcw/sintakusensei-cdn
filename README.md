@@ -1,0 +1,1 @@
+# sintakusensei-cdn
